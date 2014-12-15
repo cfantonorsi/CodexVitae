@@ -1,5 +1,4 @@
 # CodexVitae
-==========
 
 ## Review Every Day
 Things that I must have present every day 
