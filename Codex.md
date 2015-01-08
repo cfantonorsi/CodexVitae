@@ -6,6 +6,7 @@ Things that I must have present every day
 * Write the Morning Pages, it helps
 * Drink Water
 * Write the Night Pages, it helps, seriously do it
+* Meditate
 * Review/Update this list
 
 ## Review Every Month
