@@ -39,7 +39,9 @@ Things to check on the beggining of every year
 6. Carl Sagan
 7. Nikola Tesla
 8. Leonardo Da Vinci
-9. ¿?
+9. Julius Caesar
+10. Alexander the Great
+11. 
 
 
 ### Council of Virtues
