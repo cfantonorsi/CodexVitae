@@ -57,3 +57,31 @@ Things to check on the beggining of every year
 4. Leonardo Da Vinci
 
 ### Council of ¿?
+
+## Articles to Have Present
+
+[Semper Virilis: A Roadmap to Mandhood in the 21st Century] (http://www.artofmanliness.com/2014/06/09/semper-virilis-a-roadmap-to-manhood-in-the-21st-century/)
+
+## Valuable Hobbies
+
+* Chess
+* Reading
+* Playing the Guitar
+* Woodworking
+* Gardening
+* Metalworking
+* Marksmanhip
+* Camping/backpacking
+* Model Building
+* Archery
+* Letter Writing
+* Hiking
+* Beer Pipe
+* Photography
+* Cooking
+* Blacksmithing
+* Blogging
+* BeerBrewing
+* Drawing/painting
+* Amateur Astronomy
+* Computer Programming
